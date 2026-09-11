@@ -24,4 +24,4 @@ josephjonathab@gmail.com
 
 https://github.com/meetjoejoe
 
-https://www.linkedin.com/in/jonathan-joseph-8ba1aa292?utm_source=share_via&utm_content=profile&utm_medium=member_android
+www.linkedin.com/in/jonathan-joseph-8ba1aa292
